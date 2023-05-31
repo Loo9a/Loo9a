@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Loo9a
-- 👀 I’m interested in Machine learning,coding and some desing 
+- 👀 I’m interested in Machine learning and coding 
 - 🌱 I’m a computer science student 
 - 📫 How to reach me faroukslimene112@gmail.com or fb.com/farouk.sl
 
